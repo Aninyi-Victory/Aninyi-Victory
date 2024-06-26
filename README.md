@@ -8,3 +8,5 @@ I have strong **problem-solving skills**, **communication skills**, and the **ab
 I am looking to collaborate on data analysis jobs and projects that will allow me to apply my skills and expertise to help organizations make data-driven decisions.  
 I post valuable data-related content on **Medium** and **LinkedIn**.
 
+#### Connect with me on chinonsovictory3@gmail.com 
+
